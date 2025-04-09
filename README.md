@@ -45,11 +45,7 @@ o	کدهای زیر را در آن وارد کنید:
 
 
 
-[flashing light.pdf](https://github.com/user-attachments/files/19658693/flashing.light.pdf)
-![3](https://github.com/user-attachments/assets/27b1c0c0-2499-4eec-adbc-efa277a53f1e)
+https://github.com/user-attachments/assets/010524d3-a073-436d-bfd7-2881df6ae853
 
-
-https://github.com/user-attachments/assets/51c7b886-dd8b-4d8a-bb82-2dbe54f979da
-
-![flashing light](https://github.com/user-attachments/assets/65642415-5886-498f-a591-f337bffa7682)
+![3](https://github.com/user-attachments/assets/a6d10fb2-3aa8-4123-8998-c525917da294)  ![flashing light](https://github.com/user-attachments/assets/6c1d0aa1-cc10-453c-8509-6f6564deaea0)
 
