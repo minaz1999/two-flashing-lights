@@ -49,7 +49,10 @@
 
 
 
-https://github.com/user-attachments/assets/010524d3-a073-436d-bfd7-2881df6ae853
+[flashing light.pdf](https://github.com/user-attachments/files/19658723/flashing.light.pdf)
+![3](https://github.com/user-attachments/assets/643ae578-601b-441c-9e6e-0db7db640f5c)
 
-![3](https://github.com/user-attachments/assets/a6d10fb2-3aa8-4123-8998-c525917da294)  ![flashing light](https://github.com/user-attachments/assets/6c1d0aa1-cc10-453c-8509-6f6564deaea0)
 
+https://github.com/user-attachments/assets/2e2fcea2-ff1a-4c45-8d02-94802b4ed052
+
+![flashing light](https://github.com/user-attachments/assets/a2fef0b3-e4ee-458a-b9ed-1bbe4ce51b8a)
